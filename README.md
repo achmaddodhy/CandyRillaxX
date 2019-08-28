@@ -1,2 +1,0 @@
-# CandyRillaxX
-i am noobmaster.
